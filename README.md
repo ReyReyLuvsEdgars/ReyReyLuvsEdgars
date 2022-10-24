@@ -1,0 +1,3 @@
+- Hey, I’m @ReyReyLuvsEdgars
+- I’m interested in Just Dance
+- I’m currently learning 10th Grade!
